@@ -1,5 +1,5 @@
 MovieInsight
-Link apk:
+Link apk: https://drive.google.com/open?id=0B1IEIlugG-EHeWh5Skx5WVMzVGs
 
 Identitas Siswa:
 NAMA :Prasetya Ananta Wiratama Susanto
